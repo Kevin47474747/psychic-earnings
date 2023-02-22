@@ -1,0 +1,2 @@
+# psychic-earnings
+Scam app
